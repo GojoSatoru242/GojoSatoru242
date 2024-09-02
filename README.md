@@ -1,0 +1,5 @@
+- 👋 Hi, I’m the  strongest
+- You Cryin'?
+- Infinity Exists Everywhere.
+- Above & Below, Only I Dominate.
+- 
